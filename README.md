@@ -1,1 +1,1 @@
-![](ExtraDiceRoller.gif>)
+![](ExtraDiceRoller.gif)
